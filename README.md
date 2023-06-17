@@ -1,4 +1,4 @@
-                                            ゜˚・⋆ 。。.ೃ 。.・˚.⋆・✧・⋆.˚・.。.ೃ. 。。⋆・˚゜ 
+                                            ゜˚・⋆ 。。.ೃ 。.・˚.⋆・✧・⋆.˚・. 。.ೃ. 。。⋆・˚゜ 
 
 - Hello, I'm Fernanda Holanda
 - 👀 I'm interested in the moon, sky and universe; music, movies, books; fashion, art in general  ...
